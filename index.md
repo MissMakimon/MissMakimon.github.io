@@ -8,4 +8,6 @@ Deadpool (Wade Winston Wilson) is a fictional character appearing in American co
 * fun
 * pop culture
 
-As Deadpool questioned:> Whose kitty litter did > I just shit in?
+As Deadpool questioned:
+> Whose kitty litter did
+> I just shit in?
